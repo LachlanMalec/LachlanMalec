@@ -1,5 +1,1 @@
-**My site:** https://www.lachlanmalec.dev
-
-**I work as** a full stack software engineer at TestLab360.
-
-**I love** tech, gaming & internet mysteries!
+2% sleep, 98% artificial stimulants
